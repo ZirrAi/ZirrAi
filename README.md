@@ -1,4 +1,4 @@
-# Top 5 AI Medical Scribe Solutions: Zirr AI Medical Scribe Leads the Pack
+# Top 6 AI Medical Scribe Solutions: Zirr AI Medical Scribe Leads the Pack
 
 AI medical scribes have emerged as indispensable tools for streamlining the process of creating SOAP notes and charts. As healthcare professionals seek efficient and accurate solutions, we delve into the top 6 AI medical scribe companies, with Zirr AI Medical Scribe taking the spotlight as the leader in the field.
 
